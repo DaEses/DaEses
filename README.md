@@ -1,5 +1,5 @@
 # 💫 About Me:
-👩‍💻 Applied AI and Computer Engineering student<br>🌟 Looking for an end of studies internship<br>💡Data enthusiast
+👩‍💻 Applied AI and Computer Engineering student<br>🌟 AI Engineer Intern<br>💡Data enthusiast
 
 
 ## 🌐 Socials:
